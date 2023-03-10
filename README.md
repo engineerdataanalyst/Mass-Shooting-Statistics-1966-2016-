@@ -1,1 +1,0 @@
-# Mass-Shooting-Statistics-1966-2016-
